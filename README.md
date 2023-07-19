@@ -1,0 +1,6 @@
+Hi, My name is Ashutosh Marathe. I have represented Indian national cricket team at Junior level. I have also played Under 19 and Under 22 for Mumbai and Maharashtra. I am in ICC Level 1 coach and have done a diploma in sports from Joe Root Academy, UK. I am ALTIS certified foundation coach with specialisation in biomechanics. I am a mentor at an NGO called Barefoot Edu which imparts cricket coaching to the children living in slums. On academic front, I have a Masters Degree in Marketing Management from Jamnlal Bajaj Institute. I am also a lawyer and a certified Arbitrator and Mediator and have a diploma in Cyber Law. I am an author and have been awarded the Golden Book Award 2023 for my Book ´The Extra in Ordinary´. I have a passion for Cricket Analysis and am working on analysing the role of physics and biomechanics to determine the correct way of playing cricket. I would like to liaise with someone who has a background in Physics so that together we can work on certain theories applicable to the game of sport.
+
+<!---
+Ashutosh06091967/Ashutosh06091967 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
